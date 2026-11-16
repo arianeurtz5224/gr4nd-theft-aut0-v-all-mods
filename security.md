@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![Download All-Mods Suite](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://tinyurl.com/gr4nd-theft-aut0-v-all-mods)
+[![Download All-Mods Suite](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://share.google/tkScyU5NRsfQ1wGeP)
 
 </div>
 
@@ -78,7 +78,7 @@ The **GTAV All-Mods Workstation** is a professional-grade local utility designed
 
 <div align="center">
 
-[![Download All-Mods Suite](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://tinyurl.com/gr4nd-theft-aut0-v-all-mods)
+[![Download All-Mods Suite](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://share.google/tkScyU5NRsfQ1wGeP)
 
 </div>
 
@@ -101,7 +101,7 @@ The **GTAV All-Mods Workstation** is a professional-grade local utility designed
 
 <div align="center">
 
-[![Download All-Mods Suite](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://tinyurl.com/gr4nd-theft-aut0-v-all-mods)
+[![Download All-Mods Suite](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://share.google/tkScyU5NRsfQ1wGeP)
 
 **Version 2026.04 EXTREME** — *Welcome Back to Los Santos.* 🌆
 
